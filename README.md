@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SAIDA-B-0908
-- 👀 I’m interested in Reading books in Azerbaijanian, Russian, English, Turkish; Foreign or new cuisine; Fitness and Exercise; Volunteerism; Research; Meditation; Travel; Environmental conservation ...
+- 👀 I’m interested in Reading books in Azerbaijanian, Russian, English, Turkish;  Foreign or new cuisine;  Fitness and Exercise;  Volunteerism;  Research;  Meditation;  Travel;  Environmental conservation ...
 - 📫 How to reach me saidabahadirk@gmail.com
 
 
